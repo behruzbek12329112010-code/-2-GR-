@@ -1,1 +1,1 @@
-bolla ortiqcha papka ochishni tafsiya bermeman
+bolla ortiqcha ortiqcha papka ochishni tafsiya bermeman
